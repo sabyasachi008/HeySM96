@@ -1,4 +1,4 @@
-## HAPPY BIRTHDAY SM96 💙
-# Birthday gift from yours truely
+# HAPPY BIRTHDAY SM96 💙
+## Birthday gift from yours truely
 
-# Author : Sabyasachi
+## Author : Sabyasachi
